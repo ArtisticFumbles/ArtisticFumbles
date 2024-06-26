@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @ArtisticFumbles
+- 👀 I’m interested in modding and C#.
+- 🌱 I’m currently learning too much at the same time. It's a lifelong hobby.
+- 📫 How to reach me (TBD)
+- 😄 Pronouns: she/it
+- ⚡ Fun fact: Hyperfocus keeps the sleep at bay.
